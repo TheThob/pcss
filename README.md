@@ -1,3 +1,3 @@
 # pcss
 
-#Lol Thobias er en fag
+Lol Thobias er en fag
